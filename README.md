@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Fruzless
+- Sou um estudande do Colégio Estadual Presidente Roosevelt
+- Estou atualmente no primeiro ano do novo ensino médio na turma B
+- atualmente pretendo usar esta conta apenas para fins escolares
+- moro em Guaíra Parana no Brasil
+- tenho 15 anos
